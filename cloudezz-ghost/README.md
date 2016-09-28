@@ -1,3 +1,0 @@
-Cloudezz ghost blogging image
-=============================
-
